@@ -4,7 +4,7 @@
 
 ## Education
 
-### The Bishop’s School (2017 - 2021)
+### The Bishop’s School (2015 - 2021)
 
   - GPA **4.65**
   - SAT **1510**
