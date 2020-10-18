@@ -48,7 +48,7 @@
 
 ### Photography 
 
-  - [Photographs](https://www.bishops.com/page/news-detail?pk=1052338&fromId=155743) displayed at the Museum of Contemporary Arts, San Diego (2018)
+  - [Two photographs](https://www.bishops.com/page/news-detail?pk=1052338&fromId=155743) displayed at the Museum of Contemporary Arts, San Diego (Nov 2018)
   - ["Ishu"](https://www.bishops.com/page/news-detail?pk=1062596) chosen to be a part of the Youth Art Month Exhibition (2019)
   - [Scholastic Art and Writing Awards](https://ralartandwriting.files.wordpress.com/2020/01/aralw-award-recipient-list-microsite.pdf) (2020):
     - 1 Gold Key Award for photograph 'Daydream'
