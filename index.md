@@ -27,37 +27,6 @@
     - AP Calculus BC
     - Honor's Entrepreneurship
 
-## Internships
-
-### Salk Institute Virtual Program (July 2020)
-- Virtual research internship with the [Salk Institute](https://www.salk.edu/about/education-outreach/programs/salk-introduction-to-research-science-and-communication-virtual-program/) in La Jolla, CA
-- Capstone Presentation was an analysis on racial disparities in infant mortality in the United States
-
-### Scripps Translational Research Institute (July 2020)
-- Interviewed for an 8-week research internship but cancelled due to Covid-19
-
-### Junior Scientist training Program (1 week July 2019)
-- Attended the Scripps Research Center in La Jolla, CA
-- Touring and participated in Lab Demonstrations in a neuroscience research lab.
-- Learning how to work with c. elegans as a model organism.
-- Learning how to use basic molecular biology techniques to identify macromolecules
-
-### Rady’s Summer Medical Academy (June 2020)
-- Interviewed for an internship but cancelled due to Covid-19
-
-### Critical Care Cardiology (July 2019)
-- Shadowed Dr Nanavati, Cardiologist and observed his interactions with patients and investigations. 
-- Got an opportunity to attend a cardiac angiography and other invasive procedures
-
-### Emerge Conference (June 21st 2019)
-- Attended an immersive [medical conference](https://emergetheconference.com/) at UCSD School of medicine and got 
-hands-on experience on various skills like IV insertion, laceration repair, chest drain insertion etc on dummy 
-simulations and lectures by eminent Physicians specializing in cardiac surgery, emergency medicine, Obs gyn, 
-internal medicine etc.
-
-### Southwestern Eye Center (June 2019)
-- Observed interactions between physicians and their patients, various Ophthalmic investigations and Ophthalmic surgery.
-
 ## Awards / Honors
 
 ### Academic and Community Service
@@ -175,7 +144,8 @@ internal medicine etc.
     - Social media outreach:
         - [Summer camp](https://www.facebook.com/ProjectTasveer/posts/131741618598031) 
         - [Weekly classes](https://www.projecttasveer.org/post/color-your-dreams-week-1)
- - Coverage at the Bishops School magazine 
+ - Media Coverage regarding Project Tasveer
+    - [Newspaper Article](https://www.delmartimes.net/lifestyle/story/2020-10-05/local-students-nonprofit-assists-india) in Del Mar Times
     - Art in Action [interview](https://www.bishops.com/news-detail?pk=1147882&fromId=168135) 
     - Tower Magazine [article](https://thebishopstower.com/1242/culture/pictures-for-poverty/) 
     - Summer Service from Home during Covid-19 [article](https://www.bishops.com/news-detail?pk=1213618&fromId=168135)
@@ -280,7 +250,7 @@ Gujarati Association of San Diego events.
     - [Video performance](https://youtu.be/wSz4fE2vEKQ)
 
 #### Odissi (5 years) (2015 - present)
-- A form of traditional classical and devotional Indian classical dance
+- Rigorous training in a form of traditional classical and devotional Indian classical dance under the tutelage of  Nilanjana Banerjee at the [RDM studio](http://odissinilanjana.com/)
 - Organized and performed several dances in 2019. It was a benefit concert for Ahana; a non-profit that works with 
 women’s rights in India - 
     - [Solo performance](https://youtu.be/5hqdE-LfgTs)
@@ -325,6 +295,37 @@ side brake), so that they can practice driving safely when not accompanied by a 
 #### Track and Field (2018 to present)
 - Varsity 100m and 200m sprinter
 - Accolades won [1](https://www.bishops.com/news-detail?pk=1003836) and [2](https://www.bishops.com/news-detail?pk=1008344&fromId=190083)
+
+## Internships
+
+### Salk Institute Virtual Program (July 2020)
+- Virtual research internship with the [Salk Institute](https://www.salk.edu/about/education-outreach/programs/salk-introduction-to-research-science-and-communication-virtual-program/) in La Jolla, CA
+- Capstone Presentation was an analysis on racial disparities in infant mortality in the United States
+
+### Scripps Translational Research Institute (July 2020)
+- Interviewed for an 8-week research internship but cancelled due to Covid-19
+
+### Junior Scientist training Program (1 week July 2019)
+- Attended the Scripps Research Center in La Jolla, CA
+- Touring and participated in Lab Demonstrations in a neuroscience research lab.
+- Learning how to work with c. elegans as a model organism.
+- Learning how to use basic molecular biology techniques to identify macromolecules
+
+### Rady’s Summer Medical Academy (June 2020)
+- Interviewed for an internship but cancelled due to Covid-19
+
+### Critical Care Cardiology (July 2019)
+- Shadowed Dr Nanavati, Cardiologist and observed his interactions with patients and investigations. 
+- Got an opportunity to attend a cardiac angiography and other invasive procedures
+
+### Emerge Conference (June 21st 2019)
+- Attended an immersive [medical conference](https://emergetheconference.com/) at UCSD School of medicine and got 
+hands-on experience on various skills like IV insertion, laceration repair, chest drain insertion etc on dummy 
+simulations and lectures by eminent Physicians specializing in cardiac surgery, emergency medicine, Obs gyn, 
+internal medicine etc.
+
+### Southwestern Eye Center (June 2019)
+- Observed interactions between physicians and their patients, various Ophthalmic investigations and Ophthalmic surgery.
 
 ## Additional Skills
 - Proficient in Adobe InDesign, Adobe Photoshop, Lightroom, website design in WIX, iMovie, PicCollage
