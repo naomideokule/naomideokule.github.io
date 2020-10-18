@@ -41,9 +41,9 @@
   - [French Honors Society](https://www.bishops.com/news-detail?pk=1093330&fromId=168135) (2019 - present)
     - Inducted as a Sophmore
   - Le Grand Concours National French Contest (2019)
-    - Bronze Medal winner, overall in San Diego, CA
+    - Bronze Medal winner, 3rd place in San Diego, CA
   - Honor Roll (2016 - 2020)  
-  - Total of 527 community service hours (2017 - 2020)
+  - Total of 527 community service hours (Sept 2017 - May 2020)
   - AP Scholar with Distinction (2020)
 
 ### Photography 
