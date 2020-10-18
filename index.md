@@ -8,7 +8,7 @@
 
   - GPA **4.65**
   - SAT **1510**
-  - Subject SAT
+  - SUBJECT SAT
     - Chemistry **730**
   - **Relevant Coursework:**
     - Social Psychology (Global Online Academy online course)
@@ -31,7 +31,6 @@
 
 ### Academic and Community Service
 
-  - Honor Roll (2016 - 2020)
   - [Tulane University Book Award](https://spark.adobe.com/page/GTzBwZ5AYTUfl/#college-book-awards) (2020)
   - Gold President’s Volunteer Service Award (2020)
     - Received for 250+ hours of community service
@@ -43,6 +42,7 @@
     - Inducted as a Sophmore
   - Le Grand Concours National French Contest (2019)
     - Bronze Medal winner, overall in San Diego, CA
+  - Honor Roll (2016 - 2020)  
   - Total of 527 community service hours (2017 - 2020)
   - AP Scholar with Distinction (2020)
 
