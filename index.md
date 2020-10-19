@@ -77,13 +77,13 @@
   - Carmel Valley Music Teachers Association Piano Competition
     - Various piano competitions and awards
   - [National American Protege](https://americanprotege.com/) (2017)
-    - Winner and invited to play my Duo at Carnegie Hall, NYC. Link to perfromance (https://youtu.be/bKCfWvL1feM)
+    - Winner and invited to play my Duo at Carnegie Hall, NYC. [Link to perfromance](https://youtu.be/bKCfWvL1feM)
   - [Grand Prize Virtuoso International Music Competition](https://www.grandprizevirtuosointernationalmusiccompetition.com/) (2017, 2020)
     - Won 1st place and invited to play at the Albert Hall, London
     - Won 2nd place and invited to [play at the Salzburg Mozarteum, Austria](https://www.bishops.com/news-detail?pk=1225698)
   - [United States International Duo Piano Competition](http://usidpc.org/) (2017)
     - Winner as part of Duo - [Waltz from “Masquerade”](https://1pdf.net/2017-united-states-international-duo-piano-competition-winners-_58cc4cfbf6065dc50750ff71)
-    - Submission video link (https://www.youtube.com/watch?v=er5hwJtSxrc)
+    - [Submission video link](https://www.youtube.com/watch?v=er5hwJtSxrc)
     - Participated in the Winners live Piano competition in Colorado Springs, Colorado
 
 ### Vocal
@@ -99,9 +99,9 @@
   - New Play Festival (2017)
     - My production, "Three Deep Breaths" selected out of 120 submissions to be produced and performed
     - [Link to production](https://youtu.be/WRgvGAZegCA)
-  - Scholastic Art and Writing Awards
+  - Scholastic Art and Writing Awards (2019)
     - Received Honorable Mention for my play "Three Deep Breaths"
-  - The O'Neill Young Playwrights Festival Semi-finalist
+  - The O'Neill Young Playwrights Festival Semi-finalist (2020)
     - For my play "Three Deep Breaths"
   - Molly Martinek Award (2019)
     - Award given by The Bishop’s School
@@ -113,8 +113,8 @@
 
   - Student Diversity Leadership Conference (2018)
     - [Selected to represent my school](https://www.bishops.com/news-detail?pk=1091072)
-  - Listen to the Silence, Stanford University (2019, 2020)
-    - [Asian American Diversity Conference](http://aasa.stanford.edu/listen-to-the-silence.html) at Stanford University
+  - [Listen to the Silence, Stanford University](http://aasa.stanford.edu/listen-to-the-silence.html) (2019, 2020)
+    - Asian American Diversity Conference at Stanford University
     - Selected to represent my school two years in a row
 
 ### Speech and Debate
@@ -125,7 +125,7 @@
 
 ### Social Service and Leadership
 
-#### CEO/Co-Founder, Project Tasveer (2018 - present)
+#### CEO/Co-Founder, Project Tasveer **2yrs** (Oct 2018 - present)
  - Website: [https://www.projecttasveer.org](https://www.projecttasveer.org)
  - 501(c)(3) non-profit organization selling graphic design products that I create to support public health and social 
  justice related aid projects in India, including three non-profit organizations: 
