@@ -125,7 +125,7 @@
 
 ### Social Service and Leadership
 
-#### CEO/Co-Founder, Project Tasveer **2yrs** (Oct 2018 - present)
+#### CEO/Co-Founder, Project Tasveer (2 yrs;Oct 2018 - present)
  - Website: [https://www.projecttasveer.org](https://www.projecttasveer.org)
  - 501(c)(3) non-profit organization selling graphic design products that I create to support public health and social 
  justice related aid projects in India, including three non-profit organizations: 
@@ -151,7 +151,7 @@
     - Summer Service from Home during Covid-19 [article](https://www.bishops.com/news-detail?pk=1213618&fromId=168135)
 
 
-#### President/Founder, HOSA (Health Organizations Student Association) chapter at The Bishop’s School (2019 - present)
+#### President/Founder, HOSA (Health Organizations Student Association) chapter at The Bishop’s School (2yrs; Aug 2019 - present)
  - Advocate for equitable healthcare for local under-priviledged communities in San Diego through service drives, 
  fundraisers, raising awareness for public health related issues, etc.
  - Started the chapter through finding an advisor, contacting HOSA California, filling out paperwork, advertising for 
@@ -159,19 +159,19 @@
  - Ran a school-wide hygiene product drive for the International Rescue Committee
  - Hand made and distributed 250+ masks for at-risk health workers through mask-match.com
 
-#### Co-President, Asian American Student Association (2017 - present)
+#### Co-President, Asian American Student Association (3yrs; Aug 2017 - present)
   - Plan events, organize meetings, lead discussions, etc.
   - Organized school’s Diwali festival, organized school’s Chinese New Year Festival, organized school-wide town hall 
   on Affirmative Action, organized visit to a local Asian American film-festival, etc.
 
-#### Head Youth Ambassador, Akshaya Patra (2019 - present)
+#### Head Youth Ambassador, Akshaya Patra (2 yrs; Jan 2019 - present)
   - Lead the youth of Akshaya Patra’s San Diego Chapter
   - Organize fundraisers in and around San Diego to provide nutritious meals at schools in India, 
   - Run social media account, organize unique fundraising ideas, raise awareness, design flyers and pamphlets
   - Helped chapter raise $26,000+ from January-August of 2020
   - Led photography, bollywood dance, yoga and science summer camps to raise funds
   
-#### Editor in Chief, Globe Magazine (2017 - present)
+#### Editor in Chief, Globe Magazine (3yrs; 2017 - present)
   - Head of Layout and Design for one year before advancing to Editor in Chief position
   - Student run magazine that works toward fostering diversity and cultural awareness on the school campus
   - Run/design entire magazine, curate articles and photography 
@@ -186,25 +186,25 @@
   - Bishop's Freshman Shares Life-Changing [Summer Experience](https://www.bishops.com/news-detail?pk=988490) (2018)
   - Visited Dharmasala, India through the Global Leadership Adventure Program for 2 weeks for a community service and
    photojournalism trip (2018).
-  - Leadership position at the youth committee of Gujarati Association of San Diego involved in organizing various 
+  - Leadership position at the youth committee (2017) of Gujarati Association of San Diego involved in organizing various 
   Indian cultural events throughout the year including organizing a 3 hour long 
   [cultural show](https://youtu.be/89fQP4p1Fm0) (2017).
   - Performed an hour long Piano Concert at Sunrise Senior living facility (2014).
 
 ### Photography and Design
 
-#### Community Service Trip to India to Sambhali Trust Fatima Women’s Empowerment Center (2019)
+#### Community Service Trip to India to Sambhali Trust Fatima Women’s Empowerment Center (Dec 2019)
   - Conducted a three-day long health workshop addressing marginalized and abused women's healthcare concerns
   - Demonstrated the ways in which demanding household chores could be performed to prevent back injury and led a 
 discussion on women’s health issues, like periods, contraception, and protection from domestic abuse
   - [Interviewed](https://youtu.be/-thAIHtPG9g) women directly benefited by Sambhali’s work
 
-#### Freelance Photography for Community Service (2017 - present)
-  - I freelanced to take [promotional photographs](https://www.bishops.com/news-detail?pk=1053707) for different non-profit organizations
+#### Freelance Photography for Community Service (3 yrs; 2017 - present)
+  - I freelanced to take [promotional photographs](https://www.bishops.com/news-detail?pk=1053707) for different non-profit organizations free of charge
   - Worked for the Gujarati Association of San Diego, Akshaya Patra, and Sambhali Trust
   - Was appointed to take photographs for the Middle School Play at Bishop’s
   
-#### Sanskruti Vacations, Mumbai (2017 - present)
+#### Sanskruti Vacations, Mumbai (3 yrs; 2017 - present)
   - Help out with creating edits and promotional material for the social media of the travel agency Sanskruti Vacations
   - Website: [www.sanskrutivacations.com](https://www.sanskrutivacations.com/)
 
