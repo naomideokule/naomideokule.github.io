@@ -176,7 +176,7 @@
   - Student run magazine that works toward fostering diversity and cultural awareness on the school campus
   - Run/design entire magazine, curate articles and photography 
   - Utilized Adobe InDesign and teach other layout editors
-  - [2019-20 magazine issue](https://issuu.com/thebishopsschool/docs/globe_magazine_issue_1_of_2019-2020)
+  - [2019-20 Globe magazine issue](https://issuu.com/thebishopsschool/docs/globe_magazine_issue_1_of_2019-2020)
   
 #### Art's Representative, ASBC (2020 - present)
   - Elected as Arts Representative for the 2020 - 2021 school year
