@@ -39,7 +39,7 @@
   - [Global Leadership Connection](https://www.bishops.com/news-detail?pk=1176444&fromId=168135) (2020)
     - Nominated for this and attended the GLC conferences
   - [French Honors Society](https://www.bishops.com/news-detail?pk=1093330&fromId=168135) (2019 - present)
-    - Inducted as a Sophmore
+    - Inducted as a Sophomore
   - Le Grand Concours National French Contest (2019)
     - Bronze Medal winner, 3rd place in San Diego, CA
   - Honor Roll (2016 - 2020)  
