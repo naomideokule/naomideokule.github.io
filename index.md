@@ -125,7 +125,7 @@
 
 ### Social Service and Leadership
 
-#### CEO/Co-Founder, Project Tasveer (2 yrs;Oct 2018 - present)
+#### CEO/Founder, Project Tasveer (2 yrs;Oct 2018 - present)
  - Website: [https://www.projecttasveer.org](https://www.projecttasveer.org)
  - 501(c)(3) non-profit organization selling graphic design products that I create to support public health and social 
  justice related aid projects in India, including three non-profit organizations: 
