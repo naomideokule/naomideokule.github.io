@@ -48,23 +48,23 @@
 
 ### Photography 
 
-  - [Two photographs](https://www.bishops.com/page/news-detail?pk=1052338&fromId=155743) displayed at the **Museum of Contemporary Arts**, San Diego (Nov 2018)
-  - ["Ishu"](https://www.bishops.com/page/news-detail?pk=1062596) chosen to be a part of the **Youth Art Month Exhibition** (Jan 2019)
+  - [Two photographs](https://www.bishops.com/page/news-detail?pk=1052338&fromId=155743) displayed at the Museum of Contemporary Arts, San Diego (Nov 2018)
+  - ["Ishu"](https://www.bishops.com/page/news-detail?pk=1062596) chosen to be a part of the Youth Art Month Exhibition (Jan 2019)
   - [Scholastic Art and Writing Awards](https://ralartandwriting.files.wordpress.com/2020/01/aralw-award-recipient-list-microsite.pdf) (2020):
-    - 1 **Gold Key Award** for photograph 'Daydream'
-    - 1 **Silver Key Award** for photograph 'Intruder'
+    - 1 Gold Key Award for photograph 'Daydream'
+    - 1 Silver Key Award for photograph 'Intruder'
   - [Scholastic Art and Writing Awards](https://www.bishops.com/news-detail?pk=1069093) (2019):
-    - 1 **Gold Key Award** for photograph 'The Grand Mosque'
-    - 1 **Silver Key Award** for photograph 'Two Elephants'
-    - 2 **Honorable Mentions** for photographs 'Ishu' and 'Bricks Time'
-  - San Diego **Museum of Photographic Art** Youth Exhibition 2019:
+    - 1 Gold Key Award for photograph 'The Grand Mosque'
+    - 1 Silver Key Award for photograph 'Two Elephants'
+    - 2 Honorable Mentions for photographs 'Ishu' and 'Bricks Time'
+  - San Diego Museum of Photographic Art Youth Exhibition 2019:
     - "Ishu" exhibited
     - Exhibition links: [1](https://www.lajollalight.com/art/story/2019-11-01/mopa), [2](https://www.bishops.com/news-detail?pk=1140044)
-  - San Diego **Museum of Photographic Art Youth Exhibition** 2020:
+  - San Diego Museum of Photographic Art Youth Exhibition 2020:
     - "Neverland" exhibited
     - [Photo](https://cdn.rmsp.com/contests/1/2/3108-2020012809373663880-md.JPG)
-  - **Rocky Mountain School of Photography** 2020 Highschool Photo Contest:
-    - [Received **Honorable Mention Prize**](https://rmsp.com/photo-contest/archive/p1gp/people)
+  - Rocky Mountain School of Photography 2020 Highschool Photo Contest:
+    - [Received Honorable Mention Prize](https://rmsp.com/photo-contest/archive/p1gp/people)
     - Included in the top 100 selections for the "People" category and part of the top 0.04% of over 100,000 submissions
     - [Photo](https://cdn.rmsp.com/contests/1/2/3108-2020012809373663880-md.JPG)
 
