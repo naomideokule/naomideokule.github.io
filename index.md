@@ -59,7 +59,7 @@
     - 2 Honorable Mentions for photographs 'Ishu' and 'Bricks Time'
   - San Diego Museum of Photographic Art Youth Exhibition 2019:
     - "Ishu" exhibited
-    - Exhibition links: [1](https://www.lajollalight.com/art/story/2019-11-01/mopa), [2](https://www.bishops.com/news-detail?pk=1140044)
+    - Exhibition links: [1](https://www.bishops.com/news-detail?pk=1140044), [2](https://www.lajollalight.com/art/story/2019-11-01/mopa)
   - San Diego Museum of Photographic Art Youth Exhibition 2020:
     - "Neverland" exhibited
     - [Photo](https://cdn.rmsp.com/contests/1/2/3108-2020012809373663880-md.JPG)
