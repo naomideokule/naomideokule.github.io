@@ -171,7 +171,7 @@
   - Helped chapter raise $26,000+ from January-August of 2020
   - Led photography, bollywood dance, yoga and science summer camps to raise funds
   
-#### Editor in Chief, Globe Magazine (3yrs; 2017 - present)
+#### Editor in Chief, Globe Magazine (3yrs; Aug 2017 - present)
   - Head of Layout and Design for one year before advancing to Editor in Chief position
   - Student run magazine that works toward fostering diversity and cultural awareness on the school campus
   - Run/design entire magazine, curate articles and photography 
@@ -235,8 +235,8 @@ discussion on women’s health issues, like periods, contraception, and protecti
 #### Vocal (7 years) (2013 - present)
 - Sing for the Jazz Band and Orchestra at Bishop's High school. There are 2 shows a year for each - 
     - Fall 2019 Jazz [concert](https://youtu.be/KOkw4eYs35c) Adele’s "Turning Tables"
-    - Social media [outreach](https://thebishopstower.com/1145/arts/a-very-jazzy-night/)
-- Sing at local senior centers for community service ○ https://youtu.be/KrLsiiRiTrs
+    - [Tower Magazine article covering the event](https://thebishopstower.com/1145/arts/a-very-jazzy-night/)
+- Sing at local senior centers for community service. [Link to performance](https://youtu.be/KrLsiiRiTrs)
 - Performed solo in various Indian cultural community and school events including the American national anthem such 
 as Federal Indian Association’s Republic Days and Independence Days, Vallabh Youth Organization’s programs, and the 
 Gujarati Association of San Diego events.
@@ -247,22 +247,22 @@ Gujarati Association of San Diego events.
     - This included instrumental performances, Singing of Bollywood and American pop songs, and concluded with a 
     Bollywood dance. 
     - Each performance was unique and completely choreographed by my sister and I.
-    - [Video performance](https://youtu.be/wSz4fE2vEKQ)
+    - [Link to Video performance](https://youtu.be/wSz4fE2vEKQ)
 
 #### Odissi (5 years) (2015 - present)
 - Rigorous training in a form of traditional classical and devotional Indian classical dance under the tutelage of  Nilanjana Banerjee at the [RDM studio](http://odissinilanjana.com/)
-- Organized and performed several dances in 2019. It was a benefit concert for Ahana; a non-profit that works with 
+- 2019 Organized and performed several dances in 2a benefit concert for Ahana; a non-profit that works with 
 women’s rights in India - 
     - [Solo performance](https://youtu.be/5hqdE-LfgTs)
     - [Duo performance](https://youtu.be/lHr1HaOAwlo)
     - [Trio performance](https://youtu.be/uNGeJLx-z6I)
     - [Finale](https://youtu.be/UgaoKdjQ0qg)
-- [Performed](https://youtu.be/5bOrQCGljLk) for the Federation of Indian Association in 2018
-- [Performed](https://youtu.be/1i51Szyy28c) at the Global Beats; a travel expo at the San Diego Convention Center in 2018
-- Multiple performances at the Delmar Fair in 2017 -
+- Aug 2018 [Performed](https://youtu.be/5bOrQCGljLk) for the Federation of Indian Association 
+- 2018 [Performed](https://youtu.be/1i51Szyy28c) at the Global Beats; a travel expo at the San Diego Convention Center 
+- 2017 Multiple performances at the Delmar Fair-
     - [Performance 1](https://youtu.be/CDlZpa8vm6I)
     - [Performance 2](https://youtu.be/k3izWlah3ew)
-- Performed at the Balboa Park at the Museum of Mingie in 2016
+- 2016 Performed at the Balboa Park at the Museum of Mingie 
 
 #### Bollywood (10 years) (2010 - present)
 - Performed and choreographed Bollywood dances over the years at multiple Indian events, including - 
@@ -289,10 +289,10 @@ side brake), so that they can practice driving safely when not accompanied by a 
     - [Smart Start pitch](https://youtu.be/PRSZ2LLYKf0)
     - [Regional competition](https://theentrepreneuracademy.org/competition)
 
-#### Head Yoga Instructor (2018 - present)
+#### Head Yoga Instructor (2yrs; Aug 2018 - present)
 - Teach yoga lessons to students at my school for their sports credit. I contribute 5 hours every week.
 
-#### Track and Field (2018 to present)
+#### Track and Field (3yrs; Aug 2017 to present)
 - Varsity 100m and 200m sprinter
 - Accolades won [1](https://www.bishops.com/news-detail?pk=1003836) and [2](https://www.bishops.com/news-detail?pk=1008344&fromId=190083)
 
@@ -303,7 +303,10 @@ side brake), so that they can practice driving safely when not accompanied by a 
 - Capstone Presentation was an analysis on racial disparities in infant mortality in the United States
 
 ### Scripps Translational Research Institute (July 2020)
-- Interviewed for an 8-week research internship but cancelled due to Covid-19
+- Interviewed for an 8-week research internship but **cancelled due to Covid-19**
+
+### Rady’s Summer Medical Academy (June 2020)
+- Interviewed for an internship but **cancelled due to Covid-19**
 
 ### Junior Scientist training Program (1 week July 2019)
 - Attended the Scripps Research Center in La Jolla, CA
@@ -311,18 +314,15 @@ side brake), so that they can practice driving safely when not accompanied by a 
 - Learning how to work with c. elegans as a model organism.
 - Learning how to use basic molecular biology techniques to identify macromolecules
 
-### Rady’s Summer Medical Academy (June 2020)
-- Interviewed for an internship but cancelled due to Covid-19
-
-### Critical Care Cardiology (July 2019)
-- Shadowed Dr Nanavati, Cardiologist and observed his interactions with patients and investigations. 
-- Got an opportunity to attend a cardiac angiography and other invasive procedures
-
 ### Emerge Conference (June 21st 2019)
 - Attended an immersive [medical conference](https://emergetheconference.com/) at UCSD School of medicine and got 
 hands-on experience on various skills like IV insertion, laceration repair, chest drain insertion etc on dummy 
 simulations and lectures by eminent Physicians specializing in cardiac surgery, emergency medicine, Obs gyn, 
 internal medicine etc.
+
+### Critical Care Cardiology (July 2019)
+- Shadowed Dr Nanavati, Cardiologist and observed his interactions with patients and investigations. 
+- Got an opportunity to attend a cardiac angiography and other invasive procedures
 
 ### Southwestern Eye Center (June 2019)
 - Observed interactions between physicians and their patients, various Ophthalmic investigations and Ophthalmic surgery.
@@ -338,4 +338,4 @@ internal medicine etc.
     - [Played Saxophone](https://youtu.be/BmVPM9XpSCA) at 2016 FIA Indian Independence celebration cultural event
     - Developing French speaker
     - Multilingual - speak Gujarati and Hindi (Indian Languages)
-    - Global Citizen - lived in the UK, NZ and US.
+    - Global Citizen - lived in the UK, NZ and US. (Possess Dual UK-US citizen, New Zealand Permanent Resident; Overseas Citizen of India)
