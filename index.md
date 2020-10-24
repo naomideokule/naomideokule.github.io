@@ -76,7 +76,7 @@
     - Completed all 10 levels and received a [MTAC Certificate of Merit](http://www.mtac.org/programs/performance/certificate-of-merit/)
   - Carmel Valley Music Teachers Association Piano Competition
     - Various piano competitions and awards
-  - [National American Protege](https://americanprotege.com/) (2017)
+  - [American Protege International Piano and Strings Award](https://americanprotege.com/) (2017)
     - 1st place Winner and invited to play my Duo at Carnegie Hall, NYC. [Link to perfromance](https://youtu.be/bKCfWvL1feM)
   - [Grand Prize Virtuoso International Music Competition](https://www.grandprizevirtuosointernationalmusiccompetition.com/) (2017, 2020)
     - Won 1st place and invited to play at the Albert Hall, London
