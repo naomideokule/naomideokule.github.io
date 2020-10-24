@@ -77,7 +77,7 @@
   - Carmel Valley Music Teachers Association Piano Competition
     - Various piano competitions and awards
   - [National American Protege](https://americanprotege.com/) (2017)
-    - Winner and invited to play my Duo at Carnegie Hall, NYC. [Link to perfromance](https://youtu.be/bKCfWvL1feM)
+    - 1st place Winner and invited to play my Duo at Carnegie Hall, NYC. [Link to perfromance](https://youtu.be/bKCfWvL1feM)
   - [Grand Prize Virtuoso International Music Competition](https://www.grandprizevirtuosointernationalmusiccompetition.com/) (2017, 2020)
     - Won 1st place and invited to play at the Albert Hall, London
     - Won 2nd place and invited to [play at the Salzburg Mozarteum, Austria](https://www.bishops.com/news-detail?pk=1225698)
