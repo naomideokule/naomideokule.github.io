@@ -251,7 +251,7 @@ Gujarati Association of San Diego events.
 
 #### Odissi (5 years) (2015 - present)
 - Rigorous training in a form of traditional classical and devotional Indian classical dance under the tutelage of  Nilanjana Banerjee at the [RDM studio](http://odissinilanjana.com/)
-- 2019 Organized and performed several dances in 2a benefit concert for Ahana; a non-profit that works with 
+- 2019 Organized and performed several dances in a benefit concert for Ahana; a non-profit that works with 
 women’s rights in India - 
     - [Solo performance](https://youtu.be/5hqdE-LfgTs)
     - [Duo performance](https://youtu.be/lHr1HaOAwlo)
