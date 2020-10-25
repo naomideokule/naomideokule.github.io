@@ -6,7 +6,7 @@
 
 ### The Bishop’s School (2015 - 2021)
 
-  - GPA **4.65**
+  - GPA **4.63**
   - SAT **1510**
   - SUBJECT SAT
     - Chemistry **730**
