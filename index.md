@@ -194,7 +194,7 @@
 ### Photography and Design
 
 #### Community Service Trip to India to Sambhali Trust Fatima Women’s Empowerment Center (Dec 2019)
-  - Conducted a three-day long health workshop addressing marginalized and abused women's healthcare concerns
+  - Conducted a [three-day long health workshop(https://www.projecttasveer.org/post/trip-to-sambhali-trust-s-fatima-center)] addressing marginalized and abused women's healthcare concerns
   - Demonstrated the ways in which demanding household chores could be performed to prevent back injury and led a 
 discussion on women’s health issues, like periods, contraception, and protection from domestic abuse
   - [Interviewed](https://youtu.be/-thAIHtPG9g) women directly benefited by Sambhali’s work
