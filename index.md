@@ -45,9 +45,9 @@
   - Honor Roll (2016 - 2020)  
   - Total of 527 community service hours (Sept 2017 - May 2020)
   - AP Scholar with Distinction (2020)
-  - Special Commendation from San Diego City Council
+  - Special Commendation from San Diego City Council (2020) 
     The Mayor’s Office recognizes individuals who have launched initiatives that have yielded a tangible, positive impact on the San Diego community. 
-    Nominated by RefugeeNet for Color Your Dreams (virtual art and mindfulness program) week-long session conducted for San Diego refugees 
+    Nominated by RefugeeNet for *Color Your Dreams* a virtual week-long Art and Mindfulness Program conducted for San Diego refugees 
 
 
 ### Photography 
