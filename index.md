@@ -47,7 +47,7 @@
   - AP Scholar with Distinction (2020)
   - Special Commendation from San Diego City Council (2020) 
      - The Mayor’s Office recognizes individuals who have launched initiatives that have yielded a tangible, positive impact on the San Diego community. 
-       Nominated by RefugeeNet for *Color Your Dreams* a virtual week-long Art and Mindfulness Program conducted for San Diego refugees during COVID-19     
+       Nominated by RefugeeNet for **Color Your Dreams** a virtual week-long Art and Mindfulness Program conducted for San Diego refugees during COVID-19     
 
 
 ### Photography 
