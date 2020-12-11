@@ -71,7 +71,7 @@
     - [Received Honorable Mention Prize](https://rmsp.com/photo-contest/archive/p1gp/people)
     - Included in the top 100 selections for the "People" category and part of the top 0.04% of over 100,000 submissions
     - [Photo](https://cdn.rmsp.com/contests/1/2/3108-2020012809373663880-md.JPG)
-  - [Visual Arts Exhiition at Bishops'](https://spark.adobe.com/page/NnIkblS0S3Ycd/)(December 2020)
+  - [Visual Arts Exhibition at Bishops'](https://spark.adobe.com/page/NnIkblS0S3Ycd/)(December 2020)
     - My photographs were exhibited at my school exhibition.
 
 ### Piano
