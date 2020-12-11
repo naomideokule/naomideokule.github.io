@@ -73,6 +73,7 @@
     - [Photo](https://cdn.rmsp.com/contests/1/2/3108-2020012809373663880-md.JPG)
   - [Visual Arts Exhibition](https://spark.adobe.com/page/NnIkblS0S3Ycd/)(December 2020)
     - My photographs were featured in an exhibition at the Manchester Library at The Bishops School
+    
 ### Piano
 
   - [National Piano Guild Auditions](https://pianoguild.com/) (2010-2020)
