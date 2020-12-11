@@ -336,12 +336,12 @@ internal medicine etc.
 ## Additional Skills
 - Proficient in Adobe InDesign, Adobe Photoshop, Lightroom, website design in WIX, iMovie, PicCollage
 - Comprehensive Music Theory skills (10 years) - 
-    - Piano player (13 years), 
-    - Singer (7 years), 
-    - Dancer (10 yrs Bollywood and Odissi), 
-    - Choreographer (5 years), 
-    - Played Flute (5 years) and Saxophone (3 years) in school bands
-    - [Played Saxophone](https://youtu.be/BmVPM9XpSCA) at 2016 FIA Indian Independence celebration cultural event
-    - Developing French speaker
-    - Multilingual - speak Gujarati and Hindi (Indian Languages)
-    - Global Citizen - lived in the UK, NZ and US. (Possess Dual UK-US citizen, New Zealand Permanent Resident; Overseas Citizen of India)
+- Piano player (13 years), 
+- Singer (7 years), 
+- Dancer (10 yrs Bollywood and Odissi), 
+- Choreographer (5 years), 
+- Played Flute (5 years) and Saxophone (3 years) in school bands
+- [Played Saxophone](https://youtu.be/BmVPM9XpSCA) at 2016 FIA Indian Independence celebration cultural event
+- Developing French speaker
+- Multilingual - speak Gujarati and Hindi (Indian Languages)
+- Global Citizen - lived in the UK, NZ and US. (Possess Dual UK-US citizen, New Zealand Permanent Resident; Overseas Citizen of India)
